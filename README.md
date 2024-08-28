@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-### Boas vindas ao meu perfil :blue_heart
+### Boas vindas ao meu perfil 😼
 
 Meu nome é Vinicius Marques
 
@@ -13,4 +13,6 @@ Meu nome é Vinicius Marques
 
 @vinizx_xp1
 
-![](https://tenor.com/pt-BR/view/woody-woodpecker-boneca-pica-pau-dan%C3%A7ando-dancing-gif-22174274)
+![woody-woodpecker-boneca](https://github.com/user-attachments/assets/c7c089a5-1f4a-4179-b9c9-ef0aed9fef89)
+
+
